@@ -1,1 +1,0 @@
-# vegasoft.github.io
